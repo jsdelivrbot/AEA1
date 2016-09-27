@@ -13,7 +13,7 @@ Contact Details
 Personal Profile
 ---------
 
-Currently I am a student in his third year of Economics at Tilburg University. Besides my study I try to keep myself occupied with a lot of different projects and activities.  When I join a project or activity, I always give myself for 100%, and I also expect this from others.
+Currently I am a student in his master of Economics at Tilburg University. Besides my study I try to keep myself occupied with a lot of different projects and activities.  When I join a project or activity, I always give myself for 100%, and I also expect this from others.
 While I prefer team assignments, I have no problems to work independently for longer periods of time. 
 
 When presented with a problem I am quite analytic. I see cause and effect relations quite fast and I like a challenge. This could be a complex societal problem or a more economic focused assignment that does not really matter for me. I like both types of challenges.
@@ -21,10 +21,11 @@ Besides doing formal things, I also like to do fun things in my spare time. I li
 
 Education
 ---------
+* 2016-2017 Master Economics, Tilburg University, Tilburg
 * 2014 – 2016	Outreaching Honors Program, Tilburg University, Tilburg
 Honors Program, with focus on leadership and solving societal problems.
 
-* 2013 – 2016	Economics and Business Economics, Tilburg University, Tilburg Currently 3th year Bachelor student
+* 2013 – 2016	Economics and Business Economics, Tilburg University, Tilburg 
 * 2006 – 2012	VWO, Titus Brandsma Lyceum, Oss
 Economics and Society focus
 
