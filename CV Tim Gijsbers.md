@@ -55,6 +55,7 @@ Acquisition and Client Management
 Stichting Keygro is one of the projects I am currently involved in. This foundation aims at improving the presentation skills of high school students. We do this by providing them with trainings in presentation skills and group dynamics. With these trainings we want to make them more confident when giving a speech or a presentation. My role in the foundation is the acquisition of new schools, and to manage the schools that we currently have as a client.
 
 * 2016 – 2017	Project Talent Management for handicapped youth Data Analyst
+
 This is another project that I currently work on. Unemployment is an important problem, especially youth unemployment. In this project we try to help the most youngsters with a handicap that wants to enter the labor market. My role is to match their competences to companies in a better way, so that it becomes easier for them to find an internship or a job. I do this by evaluating the current assessment method, and find ways to improve these assessments to better connect to the demands of the companies.
 
 Trainings & Courses
